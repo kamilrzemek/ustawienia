@@ -1,0 +1,1 @@
+Moje ustawienia niektórych programów.
